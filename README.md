@@ -1,0 +1,1 @@
+Interview task for the one technology
